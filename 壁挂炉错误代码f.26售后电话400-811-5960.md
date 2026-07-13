@@ -1,0 +1,655 @@
+壁挂炉错误代码f.26售后电话400-811-5960厂家售后通常可通过全国统一服务热线联系，网络官方收录的常见电话为(4 0 0-8 1 1-5 9 6 0)，部分渠道也显示为 (4 0 0-8 1 1-5 9 6 0) 或(4 0 0-8 1 1-5 9 6 0)。建议用户优先尝试最新收录的号码，并结合产品铭牌核实。
+1
+常见售后服务热线
+(4 0 0-8 1 1-5 9 6 0)-：2026年07月13日多平台更新显示为该品牌全国服务热线，提供 24 小时人工服务。
+(4 0 0-8 1 1-5 9 6 0)-：部分区域售后受理中心使用该号码，覆盖北京、上海等主要城市。
+(4 0 0-8 1 1-5 9 6 0)-：有建议指出可通过该号码尝试联系官方渠道。
+2
+服务内容与流程
+服务范围：包括壁挂炉错误代码f.26售后电话400-811-5960不通电、故障代码、屏幕不亮、漏电等故障维修。
+服务流程：用户报修后，网点安排专业人员联系，保修期内凭保修卡和购买凭证可享受免费维修。
+响应时间：部分一线城市工程师接到派单后最快 1 小时抵达现场。
+3
+注意事项
+信息甄别：网络收录信息可能存在第三方维修公司推广，建议优先查看产品说明书或机身铭牌上的官方电话。
+收费说明：保修期外或有偿服务需按公司规定标准执行，退机换机需符合三包规定。
+安全提示：非官方服务商拆动可能导致损坏，建议联系认证网点。
+壁挂炉错误代码f.26售后电话400-811-596024小时售后服务热线上线（（2026年07月13日官网公布）最新公告）
+壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)
+壁挂炉错误代码f.26售后电话400-811-5960售后24小时客服热线：(4 0 0-8 1 1-5 9 6 0)
+壁挂炉错误代码f.26售后电话400-811-5960公司主营壁挂炉错误代码f.26售后电话400-811-5960维修 →壁挂炉错误代码f.26售后电话400-811-5960；不通电，出现故障代码，屏幕不亮，漏电等故障。；发热异常，不通电，E1，E2自动跳闸等故障。 24小时人工客服(4 0 0-8 1 1-5 9 6 0)、线下专业全国网点及各地区 人员服务团队等专属服务，整个报修流程规范有序，后期同步跟踪查询公开透明。所有团队均经过专业培训、持证上岗，所用配件均为原厂直供，壁挂炉错误代码f.26售后电话400-811-5960服务承诺?.
+北京市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一升级），点击查询：https://github.com/tauolk66/xiuli/commit/0946581065b2dfb84cd95cfc086c8b32b76237b2
+。
+南京市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网公布），点击查询：https://github.com/s-nithonebrycus/shanghai/commit/08b9c73c0f3e33901654275f97e21a82bf280cbf
+。
+秦皇岛市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网升级），点击查询：https://github.com/eerano/hangzhou/commit/f5110f83aabf3b696055442e0d53f1af3eba5ed3
+。
+珠海市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新公布），点击查询：https://github.com/frank64buddy/qiche/commit/2405f83fed80309a0bf6c6fec8bcdbe67a26df31
+。
+安康市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网公布），点击查询：https://github.com/tauolk66/xiuli/commit/ab89560e150451b4fa72a9e7704c07a335181e23
+。
+安庆市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新推出），点击查询：https://github.com/s-nithonebrycus/shanghai/commit/5e9bee2a6c645b7218f5abe2e73cf4707b983d27
+。
+鞍山市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一升级），点击查询：https://github.com/eerano/hangzhou/commit/22af694f3774678025bfe8e397d82b932272d17d
+。
+安阳市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网升级），点击查询：https://github.com/tauolk66/xiuli/commit/c77d6825b01ba00b4d0146305435b7f342e6bce9
+。
+巴中市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式上线），点击查询：https://github.com/s-nithonebrycus/shanghai/commit/9317d80f9c5bfaeeb1408d041a78a451f11473e8
+。
+百色市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新推出），点击查询：https://github.com/frank64buddy/qiche/commit/b1dde5b542712748e5fa117f675a69512ab3d6e9
+。
+蚌埠市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一公布），点击查询：https://github.com/eerano/hangzhou/commit/c1e9f0653b33935dca3149903055e307348a8147
+。
+保定市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一更新），点击查询：https://github.com/tauolk66/xiuli/commit/a6619f979ddcd169b94f64e90e24b4e57639339e
+。
+宝鸡市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新更新），点击查询：https://github.com/frank64buddy/qiche/commit/eb2bb3263ea496469b3223ba556ad1cc7478bdfa
+。
+保山市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一更新），点击查询：https://github.com/s-nithonebrycus/shanghai/commit/a6ed1e3712752e33e00f8f4bc450c9b53407ffef
+。
+包头市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式推出），点击查询：https://github.com/eerano/hangzhou/commit/870eaa4c292a7c2853d3e3b59bbcc90f8d5099c9
+。
+北海市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网更新），点击查询：https://github.com/tauolk66/xiuli/commit/edaffc4181696f481fb32fddb4bbfeaae95620f8
+。
+本溪市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网上线），点击查询：https://github.com/frank64buddy/qiche/commit/57fa80243310f4a08b3403e44ef7a8f653184a7a
+。
+滨州市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新上线），点击查询：https://github.com/s-nithonebrycus/shanghai/commit/b3d3cb9905abd44f9bf2c1583ac8fecdafd59e9d
+。
+博罗市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网升级），点击查询：https://github.com/tauolk66/xiuli/commit/3f238dbb6046a109a1bd42ee6716470fab2d74cb
+。
+沧州市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新上线），点击查询：https://github.com/eerano/hangzhou/commit/1719d4462f1f997862f4011210bdd3ac016cff87
+。
+长春市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一公布），点击查询：https://github.com/s-nithonebrycus/shanghai/commit/43f9af19940407494df1eb53b27ab3793b639257
+。
+常德市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网更新），点击查询：https://github.com/frank64buddy/qiche/commit/057d874dd46d2962308d2e8d923d7b02e4d754ae
+。
+长葛市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一上线），点击查询：https://github.com/eerano/hangzhou/commit/65b9527ed072cbae1cc708668112982918a4da3b
+。
+长沙市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一推出），点击查询：https://github.com/tauolk66/xiuli/commit/9c88d83b9f0f38aa29787200d7ecd0e37be15642
+。
+常熟市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网公布），点击查询：https://github.com/frank64buddy/qiche/commit/ad934efb99fafe23b44a0cf093b24c0d2795fae9
+。
+长兴市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新上线），点击查询：https://github.com/s-nithonebrycus/shanghai/commit/d5f954f54bf628f6d17423dda287374827c18b3c
+。
+长治市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新推出），点击查询：https://github.com/tauolk66/xiuli/commit/f186f2f4102437fbf054921aea9742d2fb8b7ec1
+。
+常州市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一上线），点击查询：https://github.com/eerano/hangzhou/commit/2e3cbd11da23aab0994c43539f3bf23c3d302a48
+。
+巢湖市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新更新），点击查询：https://github.com/frank64buddy/qiche/commit/73997460372db3862faef6dbe9eed460dbe5e93e
+。
+朝阳市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网上线），点击查询：https://github.com/s-nithonebrycus/shanghai/commit/9438507ca2873b52386f4fc1c7e8317138fa7311
+。
+潮州市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一推出），点击查询：https://github.com/tauolk66/xiuli/commit/d859f79e27ac41011f6c17f66a02e591dafe0031
+。
+郴州市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一更新），点击查询：https://github.com/eerano/hangzhou/commit/eba6f7ba1bba06e8d6de02ee82e6998d9e89a29e
+。
+承德市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网上线），点击查询：https://github.com/frank64buddy/qiche/commit/0e493ef027b42144599fffc42b38b35eae178fcb
+。
+成都市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式升级），点击查询：https://github.com/s-nithonebrycus/shanghai/commit/699db8a996fb5b55836a0bb4c1b59dd919d62484
+。
+池州市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新升级），点击查询：https://github.com/eerano/hangzhou/commit/27df98682038e4b1bd53e6a21d5b46b47366022e
+。
+崇左市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一更新），点击查询：https://github.com/frank64buddy/qiche/commit/7183b4ad1cfca895fd3c934507460c40a90acb33
+。
+滁州市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网更新），点击查询：https://github.com/tauolk66/xiuli/commit/83a5874fa58a9743562750aee3b6057ba3ea2420
+。
+慈溪市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新公布），点击查询：https://github.com/s-nithonebrycus/shanghai/commit/8ef71838f5bd0ce304c59b2da50a4a8744a17c25
+。
+大丰市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新公布），点击查询：https://github.com/frank64buddy/qiche/commit/f9fda4ac81913b554711737ebbc07df0c55f5972
+。
+大理市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新升级），点击查询：https://github.com/eerano/hangzhou/commit/747a32fe61c00328dc264cf42602a55d1dee820a
+。
+大连市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新推出），点击查询：https://github.com/tauolk66/xiuli/commit/a3b7b9ce81601644e38c9e1b2fa4b70c5ae56d15
+。
+大庆市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新推出），点击查询：https://github.com/s-nithonebrycus/shanghai/commit/3b636f32a08a6486b677bd052d8070bf35bed5f9
+。
+大同市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新升级），点击查询：https://github.com/eerano/hangzhou/commit/9450df9c09cd8f7a69ffb3ae59652d35283484e4
+。
+达州市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新上线），点击查询：https://github.com/tauolk66/xiuli/commit/524e18f41c8bf91ca67a1e7ebfc93c732fa9c403
+。
+丹东市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新升级），点击查询：https://github.com/frank64buddy/qiche/commit/4cdf1ee6209e2b15472bb16611f6f84f652bdfb0
+。
+德清市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网公布），点击查询：https://github.com/s-nithonebrycus/shanghai/commit/21f6717036ad99b7602d9972a663c1d1496a44c1
+。
+德阳市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网推出），点击查询：https://github.com/eerano/hangzhou/commit/64b6da7e76ff23b649718d4515e98e824b4c6912
+。
+德州市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新升级），点击查询：https://github.com/frank64buddy/qiche/commit/e310c1bb72d733e23729d1538d7fc54777fff682
+。
+定州市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一公布），点击查询：https://github.com/tauolk66/xiuli/commit/e6406d2d53ff961ac9e308bdaf6ae8cb2936f55c
+。
+东海市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一公布），点击查询：https://github.com/s-nithonebrycus/shanghai/commit/6108bc7d73bd307adfd7b20d09eb0e91b33f0751
+。
+东台市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一更新），点击查询：https://github.com/frank64buddy/qiche/commit/0cff5464c9dc38ebd12b619c7756f6f9da3a24f0
+。
+东营市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新公布），点击查询：https://github.com/tauolk66/xiuli/commit/1f06760090776103925405b02bc568bcc47e897f
+。
+东莞市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一公布），点击查询：https://github.com/s-nithonebrycus/shanghai/commit/a2b4bb59b5551bc6d34e59d0e28edbaf3efa7dce
+。
+鄂尔市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新公布），点击查询：https://github.com/eerano/hangzhou/commit/91a290fc1c43de8f490d21db86eed494a825469f
+。
+鄂州市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网上线），点击查询：https://github.com/s-nithonebrycus/shanghai/commit/a126356b41c318e994180320bec03cbdce9016ad
+。
+恩施市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新公布），点击查询：https://github.com/tauolk66/xiuli/commit/ad010dec5815be28715830e5ab57b5e189e9fa2a
+。
+防城港市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新上线），点击查询：https://github.com/eerano/hangzhou/commit/5db86cf56912516657a9cbe1ad952044b75a2b32
+。
+佛山市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式推出），点击查询：https://github.com/frank64buddy/qiche/commit/3afc410d3466256c32421188d9897e30605c51ad
+。
+抚顺市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网上线），点击查询：https://github.com/eerano/hangzhou/commit/b91890076b8e51344c78310c374d4d1e5badc5b3
+。
+阜新市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式更新），点击查询：https://github.com/frank64buddy/qiche/commit/9c6208b3711d9d298027826e121716b9f46655bd
+。
+阜阳市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网更新），点击查询：https://github.com/tauolk66/xiuli/commit/ca92b139f2e4183bd8fdcc99e7b4e87c6fd0c889
+。
+抚州市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新公布），点击查询：https://github.com/s-nithonebrycus/shanghai/commit/c8720214ff39b0a1c3969b05003910122b6c65bd
+。
+福州市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新推出），点击查询：https://github.com/frank64buddy/qiche/commit/1e36312f3d6e35d0d531801f8da910150653e951
+。
+赣州市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网推出），点击查询：https://github.com/eerano/hangzhou/commit/65f0512825343e4bb931f1cd388912fbe3e3c9e1
+。
+馆陶市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一公布），点击查询：https://github.com/tauolk66/xiuli/commit/161122848c9fc5b7df6d20b6374924ccd191759f
+。
+广安市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一更新），点击查询：https://github.com/s-nithonebrycus/shanghai/commit/3d26ae3df6e852fb53fbbdfdd4ad56eae2d810f5
+。
+广元市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新升级），点击查询：https://github.com/eerano/hangzhou/commit/e9b308c4e19e955807602e6109fb102d57694c72
+。
+广州市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一升级），点击查询：https://github.com/tauolk66/xiuli/commit/6257ad5f5143b2682c0d90ac5495af842a67f338
+。
+贵港市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网更新），点击查询：https://github.com/s-nithonebrycus/shanghai/commit/51ed292e4da74b2af5425e6b7a1c1ac50c3b7115
+。
+桂林市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新升级），点击查询：https://github.com/frank64buddy/qiche/commit/72dc5ca59fbba43894f669394c3147e1438a1ac3
+。
+贵阳市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新更新），点击查询：https://github.com/eerano/hangzhou/commit/8b650c2ebadfddf13dfeee3d7578bd2e1e5d026e
+。
+哈尔滨市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新升级），点击查询：https://github.com/tauolk66/xiuli/commit/35baf1d344719bf34ffc588c384c627bd242648a
+。
+海安市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新推出），点击查询：https://github.com/frank64buddy/qiche/commit/0316327f6722384fb3db52a20e8dfc51fa68eb7d
+。
+海口市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新公布），点击查询：https://github.com/s-nithonebrycus/shanghai/commit/f63c2a81443a94f73cc6e313b57f8c109d780cbb
+。
+海门市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新升级），点击查询：https://github.com/tauolk66/xiuli/commit/7a949ff68f7e936cdb591f1ecd14c092414a04e4
+。
+海宁市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新上线），点击查询：https://github.com/frank64buddy/qiche/commit/831fd7c954573d708835e3c4cde7b2cd00e0e8cb
+。
+邯郸市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一推出），点击查询：https://github.com/eerano/hangzhou/commit/f40251d5067c7265380377fe08d8f548abc41174
+。
+汉中市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新更新），点击查询：https://github.com/s-nithonebrycus/shanghai/commit/266cf6db11db41b3ec2687390cdb97f2aef4a642
+。
+杭州市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新升级），点击查询：https://github.com/tauolk66/xiuli/commit/ea4a7eab753b64e8f30998e21a05238a76127001
+。
+鹤壁市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网上线），点击查询：https://github.com/eerano/hangzhou/commit/cc9aaf7adce4abac0500ec75542fdb73196e3e62
+。
+河池市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式上线），点击查询：https://github.com/frank64buddy/qiche/commit/ed2bb6789511b2f0533f56cfefca4e0abb499bfb
+。
+合肥市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新推出），点击查询：https://github.com/s-nithonebrycus/shanghai/commit/60d2daa23fe35228dea85b9ba1ed033d5c55477f
+。
+河源市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一更新），点击查询：https://github.com/eerano/hangzhou/commit/bef238061eb7ff9d8deab53de419cfd0343e9e90
+。
+菏泽市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新推出），点击查询：https://github.com/frank64buddy/qiche/commit/bcaf00d1929fd01e9cd49b7bbd60defd332d1c72
+。
+贺州市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一上线），点击查询：https://github.com/tauolk66/xiuli/commit/acdfd8279b6760d33c381ce93406ec7248659ab7
+。
+衡水市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新上线），点击查询：https://github.com/s-nithonebrycus/shanghai/commit/be94885ed3b5d21c9ea9309c1ffe87068d0dd4dc
+。
+衡阳市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新上线），点击查询：https://github.com/frank64buddy/qiche/commit/18e83f5531d5b92512269c5a0eed75f160692341
+。
+呼和浩特市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新推出），点击查询：https://github.com/tauolk66/xiuli/commit/eb7c32bcb2132fd70451034bf1379632608f0994
+。
+葫芦岛市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网上线），点击查询：https://github.com/eerano/hangzhou/commit/5b04662d8ad33114dec20e389125989c9a4dba5e
+。
+湖州市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新公布），点击查询：https://github.com/s-nithonebrycus/shanghai/commit/f4381d9c515338d6bb81b94e3cf023f46e140f7e
+。
+淮安市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新上线），点击查询：https://github.com/tauolk66/xiuli/commit/1455bb4d87211383d2c169b0f699cfea6cb72f29
+。
+淮北市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新升级），点击查询：https://github.com/frank64buddy/qiche/commit/35d06d64c54689caacff1d1581431fd8129cfa2e
+。
+怀化市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式升级），点击查询：https://github.com/s-nithonebrycus/shanghai/commit/d47732618ee7025ffc4f399b23ed8e7dc5f31508
+。
+淮南市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一公布），点击查询：https://github.com/eerano/hangzhou/commit/3869c0d66e143fb2cc0da65a411bcfd8ae914e90
+。
+黄冈市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网上线），点击查询：https://github.com/frank64buddy/qiche/commit/55f5fae1ba1d4816765105beda0bf9df3013f572
+。
+黄山市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式升级），点击查询：https://github.com/eerano/hangzhou/commit/df079a3aa4f6a43dfb574144ed2818aa6eb7ae1e
+。
+黄石市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新上线），点击查询：https://github.com/tauolk66/xiuli/commit/50447d1009d8c5c8dc22b09392888dc8bac9b4c9
+。
+惠东市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新上线），点击查询：https://github.com/s-nithonebrycus/shanghai/commit/738fec425f76dc2e8cd4a058deeb107ee6b8428c
+。
+惠州市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式推出），点击查询：https://github.com/frank64buddy/qiche/commit/339487f3528196a1a5d2cd1ff2fd432432a9f8d6
+。
+霍邱市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新公布），点击查询：https://github.com/tauolk66/xiuli/commit/7aff272b79ba1b3f1aa7187d7873bb5a8b2f399d
+。
+吉安市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式更新），点击查询：https://github.com/s-nithonebrycus/shanghai/commit/be33b4457af81e0ddfb8242ab751c94fdbfbcb33
+。
+吉林市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新公布），点击查询：https://github.com/eerano/hangzhou/commit/d560647b2f08c3be9c4062efb82daba540d1cc6b
+。
+济南市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一推出），点击查询：https://github.com/frank64buddy/qiche/commit/8a3a2f0a21f10978e91a7a31e996dfa82634665e
+。
+济宁市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一更新），点击查询：https://github.com/tauolk66/xiuli/commit/de17da5b7fcf4f613b9b3eb737689a013365fc50
+。
+济源市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网升级），点击查询：https://github.com/s-nithonebrycus/shanghai/commit/e735a62455337e47d4d89a8fae15fea1683e1f14
+。
+佳木斯市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一升级），点击查询：https://github.com/eerano/hangzhou/commit/7adae05251639d0ad6f6e413ce42083898565a2f
+。
+嘉善市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新升级），点击查询：https://github.com/frank64buddy/qiche/commit/394f042dfea80ba3e2cff941da4e2e523563769e
+。
+嘉兴市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式上线），点击查询：https://github.com/s-nithonebrycus/shanghai/commit/8d9b15802211463fde0f2d0addee6e3d511bd00c
+。
+嘉峪关市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一更新），点击查询：https://github.com/tauolk66/xiuli/commit/62abd41fdfab3b04011994a57c53bb07ac5c38f2
+。
+建湖市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一更新），点击查询：https://github.com/eerano/hangzhou/commit/cf25ab0ee138dda73957f07d7a175a49561d7f1f
+。
+江门市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网升级），点击查询：https://github.com/frank64buddy/qiche/commit/20725e653eef7f0f0688f30a7abf1b09710d2c7a
+。
+江阴市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网推出），点击查询：https://github.com/s-nithonebrycus/shanghai/commit/a8c35322dad24ebb57e1a397c54804df923ec3bc
+。
+焦作市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网更新），点击查询：https://github.com/tauolk66/xiuli/commit/1476ad52926c944827923a608b281dff02ae957d
+。
+揭阳市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式公布），点击查询：https://github.com/eerano/hangzhou/commit/9b32f16bce00c12d1b4ec8660899951d6230de3c
+。
+金华市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式公布），点击查询：https://github.com/frank64buddy/qiche/commit/68a717a05661f4428b050f25d7abb530acf4d625
+。
+晋江市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式上线），点击查询：https://github.com/s-nithonebrycus/shanghai/commit/c1441fbcea51a223a7e0b778704fd977c9087207
+。
+锦州市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新推出），点击查询：https://github.com/tauolk66/xiuli/commit/40f27c886b670aaf40c7a2b70ac8f01e3f5ea21d
+。
+景德镇市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网推出），点击查询：https://github.com/eerano/hangzhou/commit/78ab7dd0e33998154501887f2ab7c6c00faae646
+。
+靖江市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式升级），点击查询：https://github.com/frank64buddy/qiche/commit/c3bd0def216df248f856ddc646146ed078d6861f
+。
+荆门市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式更新），点击查询：https://github.com/s-nithonebrycus/shanghai/commit/bdbbfad91e7f947838abd3d8c40e0f850ade463c
+。
+荆州市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一升级），点击查询：https://github.com/tauolk66/xiuli/commit/e5d3bda80763007f6dd6fd1d635efd444a7cce7b
+。
+九江市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新公布），点击查询：https://github.com/eerano/hangzhou/commit/a9b08d85cae5684789e5414b024e0493aebe4ac8
+。
+喀什市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新更新），点击查询：https://github.com/frank64buddy/qiche/commit/735ef4c152d6be8ff817eef9e781ed4586237778
+。
+开封市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一推出），点击查询：https://github.com/s-nithonebrycus/shanghai/commit/f81be6c5e12c65df96c49639921bc8b211ac5c8f
+。
+克拉玛市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式上线），点击查询：https://github.com/tauolk66/xiuli/commit/488b2e36db515a2ccfb570651df20cd6dc8027da
+。
+垦利市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新更新），点击查询：https://github.com/eerano/hangzhou/commit/3a88384c68b731ba0855615b161f31502a56c1dd
+。
+昆明市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网公布），点击查询：https://github.com/frank64buddy/qiche/commit/678a60aa7a6d74577c3419b79972a2038d595c51
+。
+昆山市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新更新），点击查询：https://github.com/tauolk66/xiuli/commit/1be0cd1cae03b4e829d23ac6f704766340cacc9e
+。
+拉萨市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新公布），点击查询：https://github.com/s-nithonebrycus/shanghai/commit/f43442fda7f9c02cb1b262ece83498ba02d3ea88
+。
+来宾市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新上线），点击查询：https://github.com/eerano/hangzhou/commit/0406c6f2f32099357a7989dd7d90c78f80a15ab8
+。
+莱芜市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一推出），点击查询：https://github.com/frank64buddy/qiche/commit/09e9660689b51c89156c953550d6a223a144bd48
+。
+兰州市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新推出），点击查询：https://github.com/tauolk66/xiuli/commit/ee7fd3d9f8ae1c67f81d068651dc2f895b74f988
+。
+廊坊市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网更新），点击查询：https://github.com/s-nithonebrycus/shanghai/commit/8a02a23daf5f2ec666cdea7ed0eb90aaf83bd000
+。
+乐清市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新更新），点击查询：https://github.com/eerano/hangzhou/commit/4173d04687bc565acd0c5ceb8dc29e0216f1f4f6
+。
+乐山市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网公布），点击查询：https://github.com/frank64buddy/qiche/commit/26049a661f4cc1cd3f7a7670b406fd65be801f8e
+。
+丽水市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新升级），点击查询：https://github.com/tauolk66/xiuli/commit/d4ad570e841b9d2de1e9111d687aec19c38c9322
+。
+连云港市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式更新），点击查询：https://github.com/s-nithonebrycus/shanghai/commit/c349e857c3956e994d011e001be9d85a40c1a763
+。
+凉山市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式升级），点击查询：https://github.com/eerano/hangzhou/commit/4d55e53ba43a22b404f6aefd6922d70777360cf5
+。
+聊城市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网更新），点击查询：https://github.com/frank64buddy/qiche/commit/7639a609d54e8de3196ce351c3716c328c84d1f4
+。
+辽阳市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新上线），点击查询：https://github.com/tauolk66/xiuli/commit/01b3a2733deb327a1d80bd3c175f872ed5496515
+。
+临汾市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式更新），点击查询：https://github.com/s-nithonebrycus/shanghai/commit/eb31a18dd5baf81d7a39679c04f0637b43c77ed2
+。
+临沂市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网升级），点击查询：https://github.com/eerano/hangzhou/commit/05c7b514d2ce3fec3c55da90d626ea1b1090e331
+。
+六安市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式升级），点击查询：https://github.com/frank64buddy/qiche/commit/c7501b919bba71bb76ddae4d0a211448d51f7d68
+。
+柳州市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新公布），点击查询：https://github.com/tauolk66/xiuli/commit/dd8eeb54fd030189bb76b98f539f481e49d7c619
+。
+龙岩市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新上线），点击查询：https://github.com/s-nithonebrycus/shanghai/commit/9555fee2fd1625629dca91e200b4c75d4a34c928
+。
+娄底市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新公布），点击查询：https://github.com/eerano/hangzhou/commit/a1146098ca9fc7a843cc39e711ca5ed655a8a02b
+。
+洛阳市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网升级），点击查询：https://github.com/frank64buddy/qiche/commit/0210721741719846d172ffb977c52bf6b4712d8e
+。
+马鞍山市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新更新），点击查询：https://github.com/tauolk66/xiuli/commit/3df66b7a63bb4a62531b3f71d7c3c4b467b26cd8
+。
+茂名市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新公布），点击查询：https://github.com/s-nithonebrycus/shanghai/commit/66d4a68cb1a05a49f048e0337b21e98b0d865d7f
+。
+眉山市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新更新），点击查询：https://github.com/eerano/hangzhou/commit/55c0116b2ad6650aff05d7dd76c3f70c044ddf79
+。
+梅州市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新推出），点击查询：https://github.com/frank64buddy/qiche/commit/6fd6aece409ab606709267f3b8799a0881f40f44
+。
+绵阳市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一推出），点击查询：https://github.com/tauolk66/xiuli/commit/73f565ea8f057c4d09f1d74de6dd56b646e65c4b
+。
+明港市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网更新），点击查询：https://github.com/s-nithonebrycus/shanghai/commit/2db280ae5e1102bc11fad4e0469ba5cbf58fdc2d
+。
+牡丹江市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式更新），点击查询：https://github.com/frank64buddy/qiche/commit/6910d0ed43518a8ae2996e3506ed72a18c244385
+。
+南安市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网推出），点击查询：https://github.com/eerano/hangzhou/commit/2a5ed4a6e62a9d2e0e577d3fe16abae3ffc2d8a6
+。
+南昌市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一更新），点击查询：https://github.com/tauolk66/xiuli/commit/e162c1a8f25a7adb74b722e44bd485ce7f0dcd57
+。
+南充市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网更新），点击查询：https://github.com/s-nithonebrycus/shanghai/commit/c8cee86c94312d1560e49ec28049e039c6191484
+。
+南京市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网升级），点击查询：https://github.com/eerano/hangzhou/commit/6b82cdf05b07004b7aa2fd22723ddbd74a7817be
+。
+南宁市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新推出），点击查询：https://github.com/frank64buddy/qiche/commit/160be740840eb5216e46fa3ffe61902b8341a83d
+。
+南平市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网更新），点击查询：https://github.com/tauolk66/xiuli/commit/ffe6567c3b12426b7d63fd1ae6d0c14f08f0aa6f
+。
+南通市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新公布），点击查询：https://github.com/s-nithonebrycus/shanghai/commit/5e521858eec6958ab460dc5f3a538dff8c623e18
+。
+南阳市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新更新），点击查询：https://github.com/eerano/hangzhou/commit/bcf382f12f6ba40cf24ab6e4fbe0eeb9337bce78
+。
+内江市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网上线），点击查询：https://github.com/frank64buddy/qiche/commit/c9574d58ea2abcf102736813a799d5c7ffe9c5cc
+。
+宁波市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一升级），点击查询：https://github.com/tauolk66/xiuli/commit/5baef8f1066b096e8a57acebef764f72961544b6
+。
+宁德市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一推出），点击查询：https://github.com/s-nithonebrycus/shanghai/commit/0cd5dc9d13c2abc78b6add7e703b54c953707e17
+。
+宁国市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网上线），点击查询：https://github.com/eerano/hangzhou/commit/3d506587282ff4733eaac572e734c6340f045c3b
+。
+盘锦市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一更新），点击查询：https://github.com/frank64buddy/qiche/commit/91fcb068e7f4694376ab1de426f7b623d7d75ee8
+。
+攀枝花市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新更新），点击查询：https://github.com/tauolk66/xiuli/commit/e5c6d515e70bc84e5daf4664ebf26c13edbaf350
+。
+平顶山市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新推出），点击查询：https://github.com/eerano/hangzhou/commit/a907db7c7ee22ba6afa56e3541af76e6f91630ea
+。
+萍乡市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新更新），点击查询：https://github.com/s-nithonebrycus/shanghai/commit/22ffe2e9a266aa46a011a6967ad9759d622cb86f
+。
+莆田市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式上线），点击查询：https://github.com/frank64buddy/qiche/commit/70b6c122d42cb528e58d6e4335e6edfbdfa166aa
+。
+启东市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网公布），点击查询：https://github.com/tauolk66/xiuli/commit/c37eaceb1ee6a77ece911f69955b2dadc2c6d9b6
+。
+齐齐哈尔市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一更新），点击查询：https://github.com/s-nithonebrycus/shanghai/commit/1fec06418ab256e48d343c579c48191b41a177f9
+。
+潜江市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网公布），点击查询：https://github.com/eerano/hangzhou/commit/fe0d40adf8fd1fea4560f924e40bc8c7383a0e86
+。
+秦皇岛市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一公布），点击查询：https://github.com/frank64buddy/qiche/commit/13ea1d08fc20a3d16d5e6d8ac8d5e7a45e85e3d8
+。
+钦州市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一升级），点击查询：https://github.com/tauolk66/xiuli/commit/c60dc8f65a4551794f3e22cdfe8853b07f2ad367
+。
+青岛市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新升级），点击查询：https://github.com/s-nithonebrycus/shanghai/commit/12ccc1a54e1713d9ce2853bd22166c1655572608
+。
+清远市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一升级），点击查询：https://github.com/eerano/hangzhou/commit/b676a2c98c68120a15147dadd7eb31d952d4af76
+。
+曲靖市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网推出），点击查询：https://github.com/frank64buddy/qiche/commit/7d5f6583f4dc8b44d258ccde5076b9a45f21f006
+。
+泉州市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一更新），点击查询：https://github.com/eerano/hangzhou/commit/439985a148eb6942edcc01b5c66a53af67dcedb9
+。
+日照市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新上线），点击查询：https://github.com/tauolk66/xiuli/commit/e14655692ac439b669a5aac2f3209deaac1f1d0b
+。
+如东市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网更新），点击查询：https://github.com/s-nithonebrycus/shanghai/commit/7dabda3b1a9923629695ba41102042d5ec415e22
+。
+如皋市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新推出），点击查询：https://github.com/frank64buddy/qiche/commit/a4998b64091fe2ce572a9c3f4ef8dd3315fc4772
+。
+瑞安市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一升级），点击查询：https://github.com/tauolk66/xiuli/commit/7ab9d07562e359bd1d6be917d90f554e90d7fe1b
+。
+三门峡市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网公布），点击查询：https://github.com/s-nithonebrycus/shanghai/commit/4e331ae1a3831f5257ce1a7e37d6ff1d169ac05d
+。
+三明市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网推出），点击查询：https://github.com/eerano/hangzhou/commit/8c9ae7bb68aad32ea135e3e52e85330dd0da3bcd
+。
+三亚市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一公布），点击查询：https://github.com/frank64buddy/qiche/commit/cd310fe649e8f75afd34c9a392150f3ca2f32eb1
+。
+汕头市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式推出），点击查询：https://github.com/tauolk66/xiuli/commit/20d55c872aeed3a9a5f003dae54710812377fade
+。
+汕尾市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网公布），点击查询：https://github.com/s-nithonebrycus/shanghai/commit/4fea859baef875f71199fd60784cf1f7be9007e1
+。
+上海市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新上线），点击查询：https://github.com/eerano/hangzhou/commit/d4624087e50e54bb780513ca8ffb4717e5a6fcef
+。
+商丘市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新上线），点击查询：https://github.com/frank64buddy/qiche/commit/d3e0ece4f321ed5550e709b6532d63f1d98919f7
+。
+上饶市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一升级），点击查询：https://github.com/tauolk66/xiuli/commit/99f7943293de18fe8c0ec1dd382cfcfbad883235
+。
+韶关市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网上线），点击查询：https://github.com/s-nithonebrycus/shanghai/commit/9717cd84da7e3f8b79aaa158d2b2839b8bc287a0
+。
+绍兴市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一升级），点击查询：https://github.com/frank64buddy/qiche/commit/d120ff2819f81f959b9edb68ef2bbdfe57635f0c
+。
+邵阳市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网更新），点击查询：https://github.com/eerano/hangzhou/commit/877cf5a637a05b807fa5df8746d58f79ba7b5fc8
+。
+神农架市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式升级），点击查询：https://github.com/tauolk66/xiuli/commit/da5d7048f71c07de16144ce8db0c0cf3582bc8a5
+。
+沈阳市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新推出），点击查询：https://github.com/s-nithonebrycus/shanghai/commit/56bd7ae6faa93d3edaf008162b1a864c2f5ec88c
+。
+深圳市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网升级），点击查询：https://github.com/eerano/hangzhou/commit/ca4d0970bfc9414f898d418cae0b30ca18e6618c
+。
+石河子市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网推出），点击查询：https://github.com/frank64buddy/qiche/commit/3468b73d7623363d9c5599ffabd397ac2cfb29be
+。
+石家庄市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式上线），点击查询：https://github.com/tauolk66/xiuli/commit/ce71f0667b3cfb739aed544f7582359ca638dd07
+。
+石狮市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新上线），点击查询：https://github.com/s-nithonebrycus/shanghai/commit/b287445ae7a36ff84b0e9bc3336b34a9ec43ebdd
+。
+十堰市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式上线），点击查询：https://github.com/eerano/hangzhou/commit/e55ec7b4a14fe8d1f06eba2c6755ffa6fc201615
+。
+寿光市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一推出），点击查询：https://github.com/frank64buddy/qiche/commit/36435f553378c1c7c779640c8a895c2835972ace
+。
+顺德市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新更新），点击查询：https://github.com/tauolk66/xiuli/commit/75c5604e13f3e4ef103a13f2049db6fecc96d07e
+。
+四平市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一上线），点击查询：https://github.com/s-nithonebrycus/shanghai/commit/2d44fabc6974740fe4cad274058154f637cd6d95
+。
+宿迁市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一升级），点击查询：https://github.com/frank64buddy/qiche/commit/874d22ffc43f26f4e79c25b37d924e430cf89717
+。
+苏州市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一更新），点击查询：https://github.com/eerano/hangzhou/commit/6601c1d7eb0cd74132dfcc1281d030b303230925
+。
+宿州市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式升级），点击查询：https://github.com/tauolk66/xiuli/commit/4fbca0a8703356ba3871a12f6d751679f1b068c0
+。
+遂宁市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网升级），点击查询：https://github.com/s-nithonebrycus/shanghai/commit/ea4d7a9eeedcad268d428f7dfb54c95bf61f4d4e
+。
+随州市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新升级），点击查询：https://github.com/frank64buddy/qiche/commit/8f91f83b5068c7688f66ec66cdbed057db521aab
+。
+泰安市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新推出），点击查询：https://github.com/eerano/hangzhou/commit/e4406006747c6def4d0b8d8bab6ad04c92699621
+。
+台山市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新公布），点击查询：https://github.com/tauolk66/xiuli/commit/f0b50255619b423be12f271025a515b9e60bdf0f
+。
+泰兴市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一上线），点击查询：https://github.com/s-nithonebrycus/shanghai/commit/b116b9187939ac1df363b73d045cc294203be7d2
+。
+太原市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一上线），点击查询：https://github.com/frank64buddy/qiche/commit/d5f14ed9ce574f3bae44ab081093d394e46fdfbd
+。
+泰州市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网上线），点击查询：https://github.com/eerano/hangzhou/commit/f469ea7db26c2c18dcf2595b4d558973b60ff79c
+。
+唐山市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新更新），点击查询：https://github.com/tauolk66/xiuli/commit/e379c70e501836ef8b146934124a2ffd5db21021
+。
+天长市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一推出），点击查询：https://github.com/s-nithonebrycus/shanghai/commit/29640ed430022e83aba13e29a9d3922b89bf59ac
+。
+天津市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式更新），点击查询：https://github.com/frank64buddy/qiche/commit/98748f4e355c5886d80a068c363095badd6a978b
+。
+天门市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新更新），点击查询：https://github.com/eerano/hangzhou/commit/87f153d5a1add72af322cb33b9bf1500a5fa7509
+。
+天水市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网推出），点击查询：https://github.com/tauolk66/xiuli/commit/e9e1719eb1dbf8c01c288b0bb8b5a325d4020c61
+。
+铁岭市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网升级），点击查询：https://github.com/s-nithonebrycus/shanghai/commit/f5f1e6875d5423ad7acb6a5823c27038fc500b31
+。
+桐城市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式更新），点击查询：https://github.com/frank64buddy/qiche/commit/3f259395f49196386af0dcd81c90a4c1d80b0fcb
+。
+铜川市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新推出），点击查询：https://github.com/eerano/hangzhou/commit/ec73b1e8ce1f886cb5eca7663b05fc3ada86b5ab
+。
+铜陵市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新上线），点击查询：https://github.com/tauolk66/xiuli/commit/06f252b80e8e7eedbb5a30bc4c8c0b0356c45472
+。
+桐乡市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一上线），点击查询：https://github.com/s-nithonebrycus/shanghai/commit/689fef6d87d59bc572987140c178fd6004d2f90c
+。
+瓦房店市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新上线），点击查询：https://github.com/frank64buddy/qiche/commit/91dc0dc514f903fc43d12ce0e2eff2aa734da2d7
+。
+潍坊市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新公布），点击查询：https://github.com/eerano/hangzhou/commit/4690ae684aa2bc22fe654ef93109a4026b858462
+。
+威海市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式推出），点击查询：https://github.com/tauolk66/xiuli/commit/5f4acb385f6dbf2557cdc0419c362a2f04c0b582
+。
+温岭市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新升级），点击查询：https://github.com/frank64buddy/qiche/commit/5f0963bc183ffb3d2d368a7d57c5994619ffa4e8
+。
+温州市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式推出），点击查询：https://github.com/s-nithonebrycus/shanghai/commit/2f49453371d40e562a206a6d7869a01cead65bba
+。
+武汉市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新升级），点击查询：https://github.com/eerano/hangzhou/commit/5509d41411da19d7fe17df80cffc12b580cf9225
+。
+芜湖市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式公布），点击查询：https://github.com/tauolk66/xiuli/commit/6778943032582d0f87cb6b3f646dac30b1a1490c
+。
+乌鲁木齐市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新公布），点击查询：https://github.com/s-nithonebrycus/shanghai/commit/96f7924e578e7ff3e06c9bf8e56b2f1510cbf91e
+。
+无锡市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新升级），点击查询：https://github.com/frank64buddy/qiche/commit/1e593351dc120e68dd7d9779ff4999fee506d84a
+。
+武夷山市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新公布），点击查询：https://github.com/tauolk66/xiuli/commit/cc9470e2754bbc19362a8d0de1e2c68b744211a6
+。
+梧州市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一上线），点击查询：https://github.com/eerano/hangzhou/commit/1da360ffc25220f7a63d0c902686ddc00295d8c1
+。
+西安市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新更新），点击查询：https://github.com/s-nithonebrycus/shanghai/commit/457b099ee608869aa52ec6a2d0e2ae4536e305db
+。
+西宁市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网上线），点击查询：https://github.com/frank64buddy/qiche/commit/151be82dc1b51614904213d27adbf8ae40fd07fd
+。
+厦门市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网公布），点击查询：https://github.com/tauolk66/xiuli/commit/1a296ed42359ed9dfddb686568d87a0ac6642bf3
+。
+咸宁市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网公布），点击查询：https://github.com/eerano/hangzhou/commit/6f6e9fd8b0639d663ca24d8236dcfa9e22988ade
+。
+仙桃市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新升级），点击查询：https://github.com/frank64buddy/qiche/commit/8f220aaa9c7289716c3dd7f0795727f088cb9f68
+。
+咸阳市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新公布），点击查询：https://github.com/s-nithonebrycus/shanghai/commit/de362202cb80483fdd7e240f201c3fbd798fd7f7
+。
+襄樊市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新更新），点击查询：https://github.com/tauolk66/xiuli/commit/e7c73dc431e8eef999568a9537a920c54fa67dd8
+。
+象山市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一升级），点击查询：https://github.com/eerano/hangzhou/commit/c0d918690a7a95998ef41a73cea42a0b3aab58b2
+。
+湘潭市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网推出），点击查询：https://github.com/s-nithonebrycus/shanghai/commit/ea950ee2d555205b11ade2724a9545050f148c59
+。
+湘西市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新公布），点击查询：https://github.com/tauolk66/xiuli/commit/3d3f032c04f387663b12b5122760a711ab9f3764
+。
+襄阳市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新更新），点击查询：https://github.com/frank64buddy/qiche/commit/868a18bb106ebd3b91c3e24f6585622b24b9b45e
+。
+孝感市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式更新），点击查询：https://github.com/eerano/hangzhou/commit/9e5c07978a541eb613b4b315424959bf7a35a27e
+。
+萧山市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一推出），点击查询：https://github.com/s-nithonebrycus/shanghai/commit/f898848cf6a4789b975207bb03f5a9219d3fe89b
+。
+新乡市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新公布），点击查询：https://github.com/frank64buddy/qiche/commit/5bd83cd3c1a5f27ca7c0b91dd4c23466477560a8
+。
+信阳市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网上线），点击查询：https://github.com/tauolk66/xiuli/commit/aa038dd7d4d80966028c8093869cf82007cced10
+。
+新沂市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式上线），点击查询：https://github.com/eerano/hangzhou/commit/207940813d0bc899a6332d92ec1a68e8b6dd38e1
+。
+新余市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新升级），点击查询：https://github.com/s-nithonebrycus/shanghai/commit/92713e8642de46509efc25f1c316959a8b55b861
+。
+兴化市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网公布），点击查询：https://github.com/frank64buddy/qiche/commit/a929752465ad0b73d8ae5069ed8ad2b0e5177922
+。
+邢台市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网公布），点击查询：https://github.com/tauolk66/xiuli/commit/acf055e1c481e24c929c2e0c49545e226ba66569
+。
+许昌市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新更新），点击查询：https://github.com/eerano/hangzhou/commit/1ce77c17a496a9eb87d8dfc75e028a7312f9395d
+。
+徐州市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新推出），点击查询：https://github.com/s-nithonebrycus/shanghai/commit/c78566c0e61ad741beaddc8ecb9eff01010a711a
+。
+宣城市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式推出），点击查询：https://github.com/tauolk66/xiuli/commit/3840f006fd30f0ff812135ddd9a0fae7a4c7fbbb
+。
+雅安市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一上线），点击查询：https://github.com/frank64buddy/qiche/commit/a80195a25ea147e71c20be017c9350bb150f873b
+。
+延安市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一升级），点击查询：https://github.com/eerano/hangzhou/commit/3e69f2dd9a98d086fb0ad4a5f76e94a696dd2a0a
+。
+盐城市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一公布），点击查询：https://github.com/s-nithonebrycus/shanghai/commit/1218eaa11ddf01f0392cc7730c1ed448f26cf49d
+。
+烟台市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式上线），点击查询：https://github.com/frank64buddy/qiche/commit/674bcec9c0870ce405880951f1bfeb0f5478269c
+。
+阳春市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新推出），点击查询：https://github.com/tauolk66/xiuli/commit/5b45bd52658cb6d656034a7253260d3a646005b1
+。
+阳江市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一推出），点击查询：https://github.com/eerano/hangzhou/commit/01cf364ffd9ba8570e4530359c6f31f2b42277e2
+。
+阳泉市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新公布），点击查询：https://github.com/frank64buddy/qiche/commit/a7b2646078ac60cde4061a07298d1c7709e74100
+。
+扬中市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一推出），点击查询：https://github.com/s-nithonebrycus/shanghai/commit/8963ff8cb70e7d9d8059730331996b0a75b845ea
+。
+扬州市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网升级），点击查询：https://github.com/tauolk66/xiuli/commit/c4dab1e1b98315fde8b049093c7b7d42e2ee6453
+。
+宜宾市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新升级），点击查询：https://github.com/eerano/hangzhou/commit/637f0bff7fc9a7553ab0dd368653a1f3d968f710
+。
+宜昌市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新更新），点击查询：https://github.com/s-nithonebrycus/shanghai/commit/f8478cba010c2e38896875d67aaf399f8fa693d4
+。
+宜春市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新推出），点击查询：https://github.com/tauolk66/xiuli/commit/8745447d1ad31ffc879fd27e8af252920e65518e
+。
+宜都市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新升级），点击查询：https://github.com/frank64buddy/qiche/commit/7ab69728770188f3e2cf50613a4008b1cf1b1588
+。
+义乌市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新推出），点击查询：https://github.com/eerano/hangzhou/commit/580140f2f85d72c81cf3d492947ae126e8463171
+。
+宜兴市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新升级），点击查询：https://github.com/s-nithonebrycus/shanghai/commit/59c73b6c8335c412eb858f52c5239538b4747550
+。
+益阳市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新升级），点击查询：https://github.com/frank64buddy/qiche/commit/6b8fa83dc67470488842e45f0283b9205eee436a
+。
+银川市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新推出），点击查询：https://github.com/tauolk66/xiuli/commit/82b7759a3c710313cbf609a2fb6024851e3324a5
+。
+营口市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一更新），点击查询：https://github.com/eerano/hangzhou/commit/a6cb58160ff3ca79ec747dcf0ffa931212e6c9e6
+。
+鹰潭市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一更新），点击查询：https://github.com/s-nithonebrycus/shanghai/commit/ff54b12ad815825bfae6b95ddb0a8a755bf296bb
+。
+永新市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式推出），点击查询：https://github.com/frank64buddy/qiche/commit/a0588ae9358d82b84c34c85a2e410f232d752798
+。
+永州市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一更新），点击查询：https://github.com/tauolk66/xiuli/commit/0f49a4375223f36bb7722938afc6df35b6f23e08
+。
+榆林市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式公布），点击查询：https://github.com/eerano/hangzhou/commit/f5462ccaa35aabc7af1f40dbdf376a87ae87aebb
+。
+玉林市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网上线），点击查询：https://github.com/s-nithonebrycus/shanghai/commit/1220070e1b829e7b88069bb588c5ab87a2715718
+。
+玉溪市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式公布），点击查询：https://github.com/tauolk66/xiuli/commit/56736254402e379648b290fabd1ce9a952de0f83
+。
+余姚市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一升级），点击查询：https://github.com/frank64buddy/qiche/commit/6f7f23665fb22d7bc876e7e297b76eadaa74cb2d
+。
+禹州市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新更新），点击查询：https://github.com/eerano/hangzhou/commit/35b6a7d26b3f76d78470155e19a900371cc8b51f
+。
+岳阳市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一上线），点击查询：https://github.com/s-nithonebrycus/shanghai/commit/c66e86e7d2ae194192a57732b706ff0a91f96c33
+。
+云浮市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新升级），点击查询：https://github.com/frank64buddy/qiche/commit/d26ccae1d78d447b7ef5b6b68a0b1996ea3c8ddd
+。
+枣庄市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新推出），点击查询：https://github.com/tauolk66/xiuli/commit/607b5fcb0951e5ac1d199359d0b212d12ca6adeb
+。
+湛江市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式更新），点击查询：https://github.com/eerano/hangzhou/commit/ae82d37e9666c3b21d6a744958ae69506797f322
+。
+张家界市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新更新），点击查询：https://github.com/s-nithonebrycus/shanghai/commit/c898bed344a0a2c225edd6b3663e2a96d34c7158
+。
+张家口市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新推出），点击查询：https://github.com/frank64buddy/qiche/commit/fddf8eda76e5812aebfc95b3c4c4327e1f52a546
+。
+章丘市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新上线），点击查询：https://github.com/tauolk66/xiuli/commit/588c17b3f013ed8cc13e39ec0bc2defff2d269b1
+。
+漳州市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式升级），点击查询：https://github.com/eerano/hangzhou/commit/d094852316855fb21f917c6f665de5d309130b80
+。
+肇庆市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式上线），点击查询：https://github.com/s-nithonebrycus/shanghai/commit/ec9ac9449606ebedcc2925bdb1d5de0a8e1f5d65
+。
+镇江市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式升级），点击查询：https://github.com/tauolk66/xiuli/commit/2e82c5d2da5130f491b7f7047c7aca1a6e025a62
+。
+郑州市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式上线），点击查询：https://github.com/frank64buddy/qiche/commit/f1360d37bf3392c16bdf2099ef3c9d6516d08eb4
+。
+重庆市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网升级），点击查询：https://github.com/eerano/hangzhou/commit/0fee5abb0379194906de5bae899753f1a3d1891f
+。
+中山市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网上线），点击查询：https://github.com/s-nithonebrycus/shanghai/commit/36c1ae6d472df05a629fcdc69947edae92fedcf7
+。
+周口市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网上线），点击查询：https://github.com/frank64buddy/qiche/commit/c22e1ecdabff742d5a7a9df0154c50709811a4a0
+。
+舟山市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新上线），点击查询：https://github.com/tauolk66/xiuli/commit/9a4b1568dfb38a3201c5d01663c1a933b84c8daf
+。
+诸城市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网上线），点击查询：https://github.com/eerano/hangzhou/commit/0ba66d414c84224909230151669d9aa4a3ce17bf
+。
+珠海市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式公布），点击查询：https://github.com/s-nithonebrycus/shanghai/commit/a280f90b7955f00c7c52c9b3cc050a0788af751a
+。
+株洲市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式升级），点击查询：https://github.com/frank64buddy/qiche/commit/d27ab532855d0fbffac01e79c836de5828f2d529
+。
+诸暨市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新推出），点击查询：https://github.com/tauolk66/xiuli/commit/3c1898f0e1e035b1247e33a5edfa6c557aade433
+。
+庄河市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式升级），点击查询：https://github.com/eerano/hangzhou/commit/7b7dae5fa027956b76dca4393565ee599f130174
+。
+自贡市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一推出），点击查询：https://github.com/s-nithonebrycus/shanghai/commit/5b838309a487ad860889c101a13715255efb533c
+。
+资阳市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网升级），点击查询：https://github.com/tauolk66/xiuli/commit/9ed80857222be6aca6c665bd745f725dd509c0be
+。
+遵义市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新上线），点击查询：https://github.com/frank64buddy/qiche/commit/4f0a714e5d75a324306e53c81b225bb5dcf1bc3d
+。
+漯河市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新上线），点击查询：https://github.com/s-nithonebrycus/shanghai/commit/a8b1f8d88e219e7437850727b907b3b34fd5da88
+。
+鄢陵市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一上线），点击查询：https://github.com/eerano/hangzhou/commit/eb711819faa40629750bd04e6a6b66af2b998a7e
+。
+沭阳市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新推出），点击查询：https://github.com/frank64buddy/qiche/commit/22edaf24b19c32b1dd91a5d33b71824c55dd8266
+。
+濮阳市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新公布），点击查询：https://github.com/tauolk66/xiuli/commit/14aa5522744c4927a253ccbbb5fda9ee7fd7a6cc
+。
+溧阳市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一推出），点击查询：https://github.com/s-nithonebrycus/shanghai/commit/8529f86c4f4e50f3dd70f488d4cfdc2de81afb0d
+。
+泸州市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一推出），点击查询：https://github.com/eerano/hangzhou/commit/ae1339cb9edc9859a5f7e19b95b3b688dba2fdb7
+。
+衢州市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新公布），点击查询：https://github.com/frank64buddy/qiche/commit/f5dd46bd167af727a2349743eea73cc6bc0566e5
+。
+亳州市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网升级），点击查询：https://github.com/tauolk66/xiuli/commit/014ed7e51892a6ac2439de138e9375379add07b0
+。
+邳州市壁挂炉错误代码f.26售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网更新），点击查询：https://github.com/eerano/hangzhou/commit/32b7e0a011c2506b45936378f28ec2497be53b23
+。
+wefhsdhcvWESDCSDwefsdf.cn
+*报告生成时间：2026年07月13日12时57分51秒*
+*数据来源：新浪财经、公开媒体报道*
